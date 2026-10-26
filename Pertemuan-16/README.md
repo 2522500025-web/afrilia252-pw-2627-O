@@ -1,1 +1,1 @@
-﻿# Pertemuan 16
+# Pertemuan 16
